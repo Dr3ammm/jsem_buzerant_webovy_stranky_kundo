@@ -1,0 +1,1 @@
+# jsem_buzerant_webovy_stranky_kundo
